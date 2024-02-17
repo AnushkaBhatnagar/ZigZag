@@ -1,5 +1,5 @@
 
-# ZigZag - The Ultimate Guide for Collge Students
+# ZigZag - Ultimate Guide for College Students
 Whether it's seeking out the best tourist attractions, locating cozy cafes, delectable restaurants, or fabulous shopping destinations, ZigZag has got you covered. It helps you find comfortable and affordable hostels in close proximity to your desired locations, making your travel experience all the more convenient and enjoyable.
 
 So, ditch the hassle of cumbersome maps and unreliable recommendations, and embark on a journey of discovery with ZigZag!
